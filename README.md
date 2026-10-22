@@ -1,0 +1,1 @@
+# AURA-A.I.O.A.S---Declara-aoAppsdeterceiros
